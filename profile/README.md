@@ -6,6 +6,6 @@
 - необычные эксперименты 🧪
 - другие ~полезные~ репозитории ✨
 
-**❄️ основной профиль:** @snowluwu
+**❄️ основной профиль:** [@snowluwu](https://github.com/snowluwu)
 
 <img width="174" height="45" alt="lw_by_banner" src="https://github.com/user-attachments/assets/9697b077-fa64-4889-be1b-0bb6c2ee50ef" />
